@@ -11,7 +11,7 @@ Beyond academics, I have a well-rounded personality—I enjoy exploring new thin
 I’m someone who stays calm under pressure, adapts quickly, and constantly pushes myself to step out of my comfort zone and become better every day.
 
 ## 🎥 My Introduction Video
-👉 [🎥 Watch My Introduction Video](./intro.mp4)
+👉 [🎥 Watch My Introduction Video](./[intro.mp4](https://drive.google.com/file/d/14_ottW8DtTMwzr7AXvLT6YxHbJQtKiIk/view?usp=sharing))
 
 ---
 
